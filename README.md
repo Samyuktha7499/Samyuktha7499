@@ -7,6 +7,6 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on PYHTON 
 - 🤔 I’m looking for help with JAVA
 - 💬 Ask me about Fun Facts
-- 📫 How to reach me: samyukthakondaparthi@gmail.com
+- 📫 How to reach me: samyukthakondaparthi@gmail.com  S545122@nwmissouri.edu
 - 😄 Pronouns: Female
 - ⚡ Fun fact: hai hello namaste!
